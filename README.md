@@ -1,10 +1,15 @@
 # 搶救被告：律師在警局教戰手冊
+
 ### ADVISING A SUSPECT IN THE POLICE STATION: MANUAL FOR ATTORNEYS
 
 許多人一生只當過一次被告
+
 關鍵常常在於警局的偵訊
+
 本書以英國《律師陪訊指南～給警訊被告的建議》為基底
+
 結合十多位台灣律師的實務作戰經驗淬鍊而成
+
 保證給您耳目一新的警詢新視野
 
 
